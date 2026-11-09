@@ -1,0 +1,2 @@
+Exercice:
+Créer six pages 
